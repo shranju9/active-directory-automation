@@ -40,7 +40,7 @@ Senior IT professional with over 5 years of experience managing robust enterpris
 
 - 📧 **Email:** [shranju9@gmail.com](mailto:shranju9@gmail.com)
 - 📞 **Phone:** [+91 9768315293](tel:+919768315293)
-- 💼 **LinkedIn:** (https://www.linkedin.com/feed/)
+- 💼 **LinkedIn:** (www.linkedin.com/in/shranju9)
 
 
 
